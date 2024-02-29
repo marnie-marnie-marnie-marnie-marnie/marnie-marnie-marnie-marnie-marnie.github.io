@@ -1,2 +1,2 @@
-# marnie.github.io
+# marnie.vip
 marnie is cool
